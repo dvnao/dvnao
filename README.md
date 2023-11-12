@@ -1,1 +1,1 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=SF+Mono&pause=1000&color=AF6EF7&random=false&width=435&lines=Aspiring+DevOps+Engineer;Confused+15+Year+Old+Developer)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=SF+Mono&pause=1000&color=AF6EF7&random=false&width=435&lines=Aspiring+DevOps+Engineer;Curious+15+Year+Old+Developer)](https://git.io/typing-svg)
